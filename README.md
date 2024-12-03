@@ -2,5 +2,3 @@
 
 
                                                 An actual F has been lost
-                                                    . . . - - - . . .
-
